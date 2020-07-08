@@ -1,1 +1,1 @@
-# dineoutjuly.github.io
+# dineoutjuly
